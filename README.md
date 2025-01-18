@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @AC-cookies
 - 👀 I’m interested in UI/UX
 - 🌱 I’m currently learning Web Development
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on---
+- 📫 How to reach me? toastedbutter9262@gmail.com
 - 😄 Pronouns: He(-he🕺)
 - ⚡ Fun fact: I don't even know what write
   I can be dense and smart at the same time.
