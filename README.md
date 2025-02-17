@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on---
 - 📫 How to reach me? toastedbutter9262@gmail.com
 - 😄 Pronouns: He(-he🕺)
-- ⚡ Fun fact: I don't even know what write
+- ⚡ Fun fact: There's no fun fact only thing you should know is that
   I can be dense and smart at the same time.
   I'm willing to learn any type of skill.
 
